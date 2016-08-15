@@ -1,0 +1,38 @@
+---
+id: 2700
+title: What are Elemental Spirits
+date: 2013-08-12T04:49:00+00:00
+author: admin
+layout: post
+guid: http://nomorecutting.org/?p=2700
+permalink: /2013/08/12/what-are-elemental-spirits/
+categories:
+  - General Information
+---
+Elementals are spirits that have only one element to their nature, usually air, fire, water or earth, but there are also elemental spirits of akasha. These are the nature spirits, that interact with the natural world, but have their existence in the ether. The ethers are a plain of existence beyond the upper and lower worlds of shamanism, and beyond the astral plain, but lower than the level of the Gods. Lets now consider the many levels of existence. From the oneness, divine consciousness divides into 50 archetypal energies, which are at first pre-conceptual, but are then conceptualized into the archetypes of the Tarot and the basic energies of the 50 Sanskrit letters. As these differentiate further, they give rise to the gods and goddesses of all the different traditions. These then create a plain of infinite potential, out of which all possibilities are created. This field of infinite potential consists of the void at its highest level, and then the other four elements. Out of this realm of potential is created function, then form, and then physical matter. Our reality is not the only manifestation of the ethers. A different function and form creates the faerie realm, which shares the Earth with us, but in a parallel dimension. There may be many parallel Worlds co-existing with the human World, each having its own upper and lower Worlds.
+
+Divine consciousness descends into the various realms of the created Universe. The same consciousness that becomes a human being when it settles in our World may become a faerie if it settled in the faerie realm, with a different set of boundaries, or it would become an elemental if it settled in the ethers. It would become a different kind of elemental according to the element it forms in: In earth it becomes a gnome; in water it becomes an undine, in fire it becomes a salamander; in air it becomes a sylph. In the void or akasha, there are lesser known spirits with a deeply mystical nature; the imps that exist in pure chaos, the dark elves that guard the deeper mysteries and can destroy any impurities, and others not even named. Each of these elementals has an important roll to play in the creation and maintenance of life.
+
+The earth spirits or gnomes absorb from the ethers and release the energy into matter to give it life. They are formless, but take the form of whatever they interact with. Thus, when they meet a human, they take a human form, though short, stocky and thick-set, due to their earthy nature. They give us the basic energy of life in its rawest form. They can help us attract money and fulfill our material needs. The water spirits or undines govern magnetism and chemistry. They stimulate and feed our various emotions and spiritual impulses, create attraction between people, and nourish our psychic faculties. They appear as a blur of colour, but as we get closer they take form from our imaginations, and often take mermaid-like forms, or sometimes animal forms. They can help us heal, develop psychically or attract love.
+
+The fire spirits or salamanders provide passion, motivation, will and are the cause of most impulses. They enter adolescents at puberty to develop the will and sex drive, and cause them to rebel against authority so that they can discover their individuality. They appear as sudden bursts of heat, but as we encounter them they take form from our own minds and most often take the form of the lizard of the same name. They can help us develop will, courage, authoritative bearing, passion, sexual prowess, and provide us with raw power. The same will more highly developed gives us our magickal power.
+  
+The air spirits or sylphs are sources of light that produce inspiration and feed the mind. They appear as very ethereal light beings, very much like the traditional children’s book faeries, although real faeries are something quite different. They can help us with our spiritual and mystical development.
+  
+Spirits of akasha do not normally take a form, but those that live in a mustika pearl may take the form of the animal they lived in. Imps can free us of any limitations in our consciousness, dark elves are powerful protectors and can destroy any invading energies or entities. There are other akasha spirits that are sources of pure magickal energy. Akasha spirits are the hardest to find in nature, and the only way we have them as allies is when they form a Mustika Pearls in an animal or plant.
+  
+Elementals are present whenever magick is worked.
+
+They can be invoked and encouraged to temporarily inhabit some object prepared by the magician, so that they stay and help the magician in some specific way. The most permanent house for an elemental will be a Mustika Pearls. These form in the body of an animal when the elemental spirit has been living in that animal for some years, forming a symbiotic relationship, in which the animal is strengthened, and the elemental also learns some unique powers from the animal. These elementals that choose to work outside there own world to form such relationships are most useful to us. When the animal dies, the spirit wishes to continue to work and learn and so becomes a willing partner to its human keeper. Possessing a Mustika Pearl opens a person to all kinds of spiritual help. The elementals may or may not have names in their own language, but once they chose to work with a human, they take on a name, often of a well known saint or master.
+
+Working with elementals.
+
+Once you have the help of an elemental, it is easy to work with. You only have to hold it and request its help. During rituals you may hold the elemental and talk to it about what you are doing, and then let it work with you in the ritual. When carrying it, you can tell it what you need and it will work with you quietly. For example, if you are about to enter a meeting and need your authority activated, you can just tell the elemental, and it will blend with you and give you more authority at that time. Or you may be meeting someone you have a romantic interest in, and you tell the elemental to increase your magnetism and attract that person. It will then do so while you are talking to the person.
+  
+For mystical development, you should hold the elemental while meditating. Ask it for help, and allow it to blend with you while meditating. It can be used alongside mantras, or any other method of development.
+  
+Sometimes you might want to develop a clearer communication with the elemental spirit. This can be done while meditating with it. Just focus on the spirit and allow your mind to be drawn into it. Be patient. As you relax and empty your mind, the spirit will begin to give you impressions. With a little practice, it will be talking to you and showing you images.
+  
+You can speed up this process by creating a place between the worlds to meet the elemental in. All you have to do is imagine a place in nature where you are sitting, and invite the spirit to come and talk with you here. This can be done with the elemental in a mustika pearl or Bezoar stone, or out in nature, where you just sit where you feel the presence of an elemental spirit and open up communication with it.
+
+Another method that often works with Mustika Pearl is to sleep with it and ask it to communicate with you in dream. Of course this depends on you learning to remember your dreams.

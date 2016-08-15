@@ -1,0 +1,40 @@
+---
+id: 2455
+title: The Art of Mastering Stress
+date: 2012-09-10T04:52:00+00:00
+author: admin
+layout: post
+guid: http://nomorecutting.org/?p=2455
+permalink: /2012/09/10/the-art-of-mastering-stress/
+categories:
+  - General Information
+---
+The time of the year when stress can really build has now arrived. It&#8217;s a time to prepare for the holidays, a time to prepare the New Year&#8217;s budgets and a time to finish all the &#8220;to dos&#8221; on this year&#8217;s list.
+
+Unfortunately, as stress accumulates our own health and fitness goals are often sidelined. We again place what we desire and want for ourselves back on the shelf, because our lives become over stimulated with other obligations. Beating stress is a difficult task, but we have the power and control to survive the holidays and the end of the year frenzy by making just a few changes in our own habits and ways of thinking.
+
+Stress is defined as anything that stimulates you and increases your level of alertness. Life without this stimulus would be incredibly dull and boring, but with too much of this stimulus, life becomes unpleasant, tiring and eventually damaging to our health and well- being. As stress builds, we are at a higher risk of fatigue, depression, burn out, sudden loss of self-control and weight gain. In order to keep this stimulus at a healthy and enjoyable level, we must master the art of stress management by making a few small changes in our habits and ways of thinking.
+
+There are four main habits we need to consider when conquering stress. These habits are meditation and relaxation, exercise, good nutrition and self-control. Each habit listed is easily forgotten and given up when additional stress enters our lives. We tend to put each of these techniques on the shelf, even though they are solutions to making ourselves feel better both emotionally and physically.
+
+Meditation and relaxation is a good place to begin, since they teach us to take time for ourselves. It is easy to stretch our limits by promising to accomplish everything other people ask of us. Unfortunately, there are only 24-hours in a day, and usually that isn&#8217;t enough time to meet all the deadlines and activities on our calendars. That&#8217;s when meditation and other relaxation practices are particularly useful in controlling stress. They help slow down breathing, reduce blood pressure, relax tense muscles, eliminate stressful thoughts, reduce anxiety, help with concentration and give the body time to eliminate lactic acid and other waste products that accumulate.
+
+The essence of meditation is to silence your thoughts by focusing completely on just one focal point. I suggest trying yoga or silent breathing exercises to experience this form of meditation. One breathing exercise worth trying involves concentrating on your breaths in and out while lying down in a quiet place, or where there is soft music playing in the background. You can accompany this by counting your breaths using the numbers 0 to 9 or you can visualize health and relaxation flowing in with each inhale and stress or pain flowing out with each exhale. In all cases, forms of meditation help your body relax and release the stress within.
+
+Besides meditation, participating in frequent effective exercise is probably one of the best physical stress-reduction techniques available. The only downfall with exercise is how easy it is to push it last on our priority list and say &#8220;it can be done later&#8221; and &#8220;there is no time to fit that into my schedule.&#8221; I often get concerned hearing comments like those because taking exercise out of our lives tends to have an opposite effect from what we think it will. In other words, we haven&#8217;t helped our situation, but only added more stress to our lives and bodies.
+
+Exercise has several positive benefits that most people are not aware of. Exercise improves blood flow to your brain bringing additional sugars and oxygen to your brain, which aids thinking and concentration. By exercising, you speed the flow of blood through your brain, moving waste products due to neurons of the brain functioning more intensely, and it can cause the release of chemicals called endorphins into your bloodstream and decreases &#8220;stress hormones&#8221; like cortisol. Those hormones give you a feeling of happiness and well-being.
+
+Without exercise, we also add more physical stress on our bodies. Someone who is physically fit has an organ system functioning at an optimal level. If this individual should become ill or injured, they will have a stronger immune system to fight off the discomfort and recover quickly. So improving your overall health and vitality with exercise can also save you a great deal of stress by strengthening your immunity to colds, the flu and other minor illnesses. Along with exercise comes nutrition, which is another habit change we can work on during the holidays.
+
+A surprising amount of stress we may experience on a daily basis can be caused by what we eat. By eating and drinking certain foods, we actually put our bodies under chemical stress. So why do we stop making the effort to write in our food journals, why do we stop making the best choices at a party or holiday gathering, and why do we stop feeling the need to eat unhealthy food?
+
+The answer is because it&#8217;s probably easier just to do what is habit, even though they are habits that we do not like. And, in the end, we are disappointed with ourselves and stressed because of the extra pounds we have gained. Similarly, if we are eating an unbalanced diet, we may be stressing our bodies by depriving them of essential nutrients and eating too large a portion, which causes weight gain and puts additional stress on our hearts and lungs.
+
+During this season, it is also important to be aware of the effects of certain foods, including caffeine, alcohol, nicotine and sugar. If you eat well-balanced meals consisting of one-third portions of protein, complex carbohydrates and fibrous carbohydrates, you will minimize this chemical stress and feel good about yourself at the same time. And instead of gaining five to 10 pounds, you may actually lose five pounds.
+
+Lastly, I want to emphasize the importance of self-control in reducing stress. When under stress, it is very easy to lose perspective of what is important and what can wait until later. Problems that seem small can take on an apparent size that makes them seem difficult and intimidating. Naturally, this will increase your stress level and will feed your feeling of stress.
+
+If you take a positive approach to life, take time for yourself to get what your body needs and wants, try to find a good side to every situation, then you will find that you are less likely to feel stressed. You will worry less, sleep better, exercise more, eat healthier, and enjoy the holiday season. An important part of making habitual changes is learning to view mistakes as learning experiences. We won&#8217;t always stay perfect with our exercise and nutrition commitments. There will always be an occasion we travel off the path. But when you are in control of your life, you can control the level of stress you face and get right back on the right path. But when you are out of control and find the only way to escape is by pushing aside all of your health and fitness goals, than you cannot prevent stress from building on top of stress. Often the difference between being in control and out of control comes down to making an investment of the little free time you have by doing something that will benefit your long-term health.
+
+Now is the time of year to start eliminating stress by taking control of your life, staying committed to your exercise and nutritional programs and taking time out to relax. In the end, you will be healthier, stronger and happier-and can enjoy the holiday season.

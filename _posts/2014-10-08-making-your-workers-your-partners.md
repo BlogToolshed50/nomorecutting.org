@@ -1,0 +1,20 @@
+---
+id: 2907
+title: Making Your Workers Your Partners
+date: 2014-10-08T04:50:00+00:00
+author: admin
+layout: post
+guid: http://nomorecutting.org/?p=2907
+permalink: /2014/10/08/making-your-workers-your-partners/
+categories:
+  - General Information
+---
+There is an inherent conflict between owners and managers of companies. The former want, for instance, to minimize costs &#8211; the latter to draw huge salaries as long as they are in power (who knows what will transpire tomorrow). For companies traded in the stock exchanges, the former wish to maximize the value of the stocks (short term), the latter might have a longer term view of things. In the USA, shareholders place emphasis on the appreciation of the stocks (the result of quarterly and annual profit figures). This leaves little room for technological innovation, investment in research and development and in infrastructure. The theory is that workers who are also own stocks will avoid these cancerous conflicts which, at times, bring companies to ruin and, in many cases, dilapidate them financially and technologically. Whether reality leaves up to theory, is an altogether different question to which we will dedicate a separate article.
+
+A stock option is the right to purchase (or sell &#8211; but this is not applicable in our case) a stock at a specified price (=strike price) on or before a given date. Stock options are either not traded (in the case of private firms) or traded in a stock exchange (in the case of public firms whose shares are traded in a stock exchange).
+
+Stock options have many uses: they are popular investments and speculative vehicles in many markets in the West, they are a way to hedge (to insure) stock positions (in the case of put options which allow you to sell your stocks at a pre-fixed price). With very minor investment and very little risk (one can lose only the money invested in buying the option) &#8211; huge profits can be realized.
+
+Creative owners and shareholders began to use stock options to provide their workers with an incentive to work for the company and only for the company. Normally such perks were reserved to the senior managers who were thought indispensable. Later, as companies realized that their main asset were their employees, all the workers began to enjoy similar opportunities. Under an incentive stock option scheme, an employee is given by the company (as part of his compensation package) an option to purchase its shares at a certain price (at or below market price at the time that the option was granted) for a given number of years. Profits derived from such options now constitute the main part of the compensation of the top managers of the Fortune 500 in the USA and the habit is catching on even with more conservative Europe.
+
+A Stock Option Plan is an organized program for employees of a corporation allowing them to buy its shares. Sometimes the employer gives the employees subsidized loans to enable them to invest in the shares or even matches their purchases: for every share bought by the employee, the employer will give him another free of charge. In many companies, employees are offered the opportunity to buy the shares of the company at a discount (which constitutes an immediate profit). Dividends that the workers receive on the shares that they hold can be reinvested by them in additional shares of the firm (some firms do it for them automatically and without or with reduced brokerage commissions). Many companies have wage &#8220;set-aside&#8221; programs: employees regularly use a part of their wages to purchase the shares of the company at the prices which prevail at the time of purchase. Another well known form is the Employee Stock Ownership Plan (ESOP) whereby employees regularly accumulate shares and may ultimately assume control of the company.
